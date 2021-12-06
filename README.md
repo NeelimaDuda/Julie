@@ -13,6 +13,8 @@
   * family
   * animals
   * BTS
+
+~~striking~~
   
 1. Friends
    1. Preethi
@@ -35,3 +37,12 @@
   3|Pree|G9
   4|Ammu|G3
   
+  :smiling_face_with_three_hearts:
+  
+  BTS:purple_heart:
+  
+  :eye:  :eye:
+  
+   :nose:
+      
+   :tongue:
